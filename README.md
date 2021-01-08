@@ -10,4 +10,4 @@
 
 ### :octocat: SkilleX™ GitHub
 
-SkilleX™ GitHub is a place for the fellow Skillexians to see the ongoing projects, contribute and help the team to deliver the best experience for you. You can see the ongoing public projects, see updates and much more.BOOM!
+SkilleX™ GitHub is a place for the fellow Skillexians to see the ongoing projects, contribute and help the team to deliver the best experience for you. You can see the ongoing public projects, see updates and much more.
