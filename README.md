@@ -1,6 +1,6 @@
 ## SkilleX Community
 
-![](https://repository-images.githubusercontent.com/327712356/ce3c6700-58fc-11eb-9370-e8aac4a558fa)
+![](https://cdn.discordapp.com/attachments/755811777140490441/800378598057443348/yt_3.png)
 
 ### About Us
 
