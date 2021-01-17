@@ -1,4 +1,4 @@
-## SkilleX™ Community
+## SkilleX Community
 
 ![image](https://github.com/SkilleXTeam/SkilleXTeam/blob/main/79731568097599.5b50bca477735.jpg)
 
