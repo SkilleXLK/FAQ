@@ -1,6 +1,6 @@
 ## SkilleX Community
 
-![image](https://github.com/SkilleXTeam/SkilleXTeam/blob/main/79731568097599.5b50bca477735.jpg)
+![](https://repository-images.githubusercontent.com/327712356/ce3c6700-58fc-11eb-9370-e8aac4a558fa)
 
 ### About Us
 
