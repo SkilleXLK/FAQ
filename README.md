@@ -8,4 +8,4 @@ Many Talented Sri Lankan teens struggele to find a place to show the world there
 
 ## Why GitHub?
 
-SkilleX Community GitHub is a place for the fellow Skillexians to see the ongoing projects, contribute and help the team to deliver the best experience for you. You can see the ongoing public projects, see updates and much more. So don't miss your opportunity to contribute :wink:
+SkilleX Community GitHub is the place for the fellow Skillexians to see the ongoing projects, contribute and help the team to deliver the best experience for you. You can see the ongoing public projects, see updates and much more. So don't miss your opportunity to contribute :wink:
